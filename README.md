@@ -1,0 +1,2 @@
+# ayet
+benim-mavi-tiklerim
